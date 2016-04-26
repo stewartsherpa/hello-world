@@ -2,3 +2,4 @@
 repository for ideas
 
 hey whats up hello
+Hello my name is Stewart Sherpa. I am 21 years old and I have a twin brother.
